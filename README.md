@@ -1,2 +1,2 @@
-# japan-2026
-Just to host japan itinerary
+# kenya-2027
+Just to host kenya itinerary
